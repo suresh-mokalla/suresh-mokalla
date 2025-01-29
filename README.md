@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sureshmokalla123@gmail.com**
 
-- 📄 Know about my experiences [bit.ly/3D7c1Qs](https://bit.ly/3D7c1Qs)
+- 📄 Know about my experiences in [Resume](https://drive.google.com/file/d/1LPYkpaJCRV23wS6x7CBj1h-jKvWseD1D/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
